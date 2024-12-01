@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Djoum80
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning java coding
-- 💞️ I’m looking to collaborate on some projet withc can make me groow.
+- 💞️ I’m looking to collaborate on building apps android
 - 📫 How to reach me +1(506)377-3597, or chimidjoummeshi@gmail.com
 - 😄 Pronouns: lemichi
 - ⚡ Fun fact: playing PUBG Mobile, "Call of durty"
